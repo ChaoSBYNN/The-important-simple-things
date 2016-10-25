@@ -1,3 +1,3 @@
-#![image](https://avatars3.githubusercontent.com/u/10942069?v=3&s=466 =100x) Foo
+#![image](https://avatars3.githubusercontent.com/u/10942069?v=3&s=466 =100x) Foo  [![Build Status](#)](#)
 (ʘдʘ╬) 收集
 
