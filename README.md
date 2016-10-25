@@ -1,3 +1,4 @@
-#![image](https://avatars3.githubusercontent.com/u/10942069?v=3&s=466 =100x) Foo  [![Build Status](#)](#)
-(ʘдʘ╬) 收集
+#Foo 
+
+(ʘдʘ╬) 收集 [![Twitter URL](https://img.shields.io/twitter/url/http/shields.io.svg?style=social&style=flat-square)](https://twitter.com/Bee7zEBub)
 
