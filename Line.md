@@ -260,3 +260,7 @@
 I love you blue, I love you green, I love you more than peach ice cream 
 一見傾心，再見傾情，愛你摯心永不變。
 愛你的忧郁，愛你的青涩，愛你胜过一切的琐碎。
+
+>###------2017-02-09------
+
+>When mastur bation's lost its fun,You're fucking lonely.
