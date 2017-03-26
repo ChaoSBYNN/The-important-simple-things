@@ -275,3 +275,7 @@ I love you blue, I love you green, I love you more than peach ice cream
 ###------2017-03-20------
 
 > Well,nobody knows me like you.
+
+###------2017-03-26------
+
+> 孤独从来就不会毁掉一个人。把自己的头奋命塞进一个不适合自己的圈子，佯装自己不孤独才会毁掉一个人。
