@@ -316,3 +316,7 @@ I love you blue, I love you green, I love you more than peach ice cream
 ### ------2017-06-06------
 
 > 很多事交给明天，明天也不一定会做，你以为时间经得起拖延，但其实人生不过如此，懒着懒着就过了，慢着慢着就空了。或许再努力一点，就会不一样，在知道结局之前，做完一件事，比做好一件事更重要。
+
+### -----2017-06-11------
+
+> I am more proud not about the championships，but about the down years！Because we did run，we played through all that stuff！［译：比起冠军，我更为那些艰难的岁月而感到骄傲，因为我们没有逃跑，我们经历了所有的东西］！
