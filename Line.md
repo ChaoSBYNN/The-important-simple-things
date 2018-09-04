@@ -342,3 +342,5 @@ I love you blue, I love you green, I love you more than peach ice cream
 > 如果心中的情感是模糊的，那么他们走在路上，身体就会感到疲惫不堪。
 
 > 我们所称的大众诗歌根本不是来自人民大众。传统更多的是语言传统而不是思想传统。
+
+> 从来没有人读书，只有人在书中读自己，发现自己或检查自己。
