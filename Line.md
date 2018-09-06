@@ -348,3 +348,5 @@ I love you blue, I love you green, I love you more than peach ice cream
 ### ------2018-09-06------
 
 > 犹豫一个人是否爱你 那就是不爱 正如一个正在烤火的人 不会问温暖为何物
+
+> 当你思考一个人到底喜不喜欢你的时候，那是你不断下坠的过程。
