@@ -360,3 +360,7 @@ I love you blue, I love you green, I love you more than peach ice cream
 ### ------2019-03-27-------
 
 > 或许总要彻彻底底地绝望一次，才能重新再活一次。
+
+### -------2019-11-20-------
+
+> once you go black, you never go back
