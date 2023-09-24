@@ -369,4 +369,7 @@ I love you blue, I love you green, I love you more than peach ice cream
 
 > Gubba nub nub doo rahkah
 
+### -------2023-09-24-------
+
+> 没有绝对正确的⽅法。⽣命太短暂了，花费时间去聆听那些⽆法让你⼀下⼦便着迷的⾳乐似乎是⼀种浪费。但如果你不去寻找新的⾳乐体验，那不也是对⽣命的浪费吗
 
